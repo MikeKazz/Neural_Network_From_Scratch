@@ -4,3 +4,7 @@
 📝 The report can be found below:
 
 https://drive.google.com/file/d/1RylnkwpHEOeQ0Igu34DFT6jFEsLXfXnT/view?usp=sharing
+
+📰 The slides are available here:
+
+https://drive.google.com/file/d/1vGMvsEVZORjxF6NKXbc62kP42PKx2VZ2/view?usp=sharing
